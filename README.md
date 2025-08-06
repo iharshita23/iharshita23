@@ -59,7 +59,8 @@
 
 ### 📫 **How to Reach Me:**  
 - **Email:** [vishwakarmaharshita8@gmail.com](mailto:vishwakarmaharshita8@gmail.com)
-- **LinkedIn:** [Harshita Vishwakarma](https://www.linkedin.com/in/harshita-vishwakarma-0a664b1b6/)  
+- **LinkedIn:** [Harshita Vishwakarma](https://www.linkedin.com/in/harshita-vishwakarma-0a664b1b6/)
+- **Medium:** [Harshita Vishwakarma](https://medium.com/@vishwakarmaharshita8)
 
 ---
 
